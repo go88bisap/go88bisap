@@ -1,16 +1,15 @@
-### Hi there 👋
+### Go88 Bị sập
 
-<!--
-**go88bisap/go88bisap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+GO88 bị sập là tin đồn hay sự thật?
 
-Here are some ideas to get you started:
+Go88 bị sập từng là một trong những chủ đề được rất nhiều người chơi game đánh bài đổi thưởng bàn tán trên các diễn đàn nội bộ. Tin đồn này đã khiến không ít game thủ cảm thấy hoang mang khi trong tài khoản của họ còn không ít tiền đã nạp để tham gia chơi game đánh bài đổi thưởng tại cổng game bài này. Có thể nói những tin đồn như thế này đã ảnh hưởng không nhỏ đến lượng thành viên của Go88.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://iwinios.link/game/go88-bi-sap/
+
+https://www.tumblr.com/go88bisap
+
+https://gab.com/go88bisap
+
+https://ok.ru/profile/601313485885/statuses/155721089524541
+
+https://www.twitch.tv/go88bisap
